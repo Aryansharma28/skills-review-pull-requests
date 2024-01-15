@@ -34,3 +34,5 @@ Clear Communication:
 
 Stress the importance of clear and respectful communication in discussions.
 Define expectations for responding to comments, feedback, and keeping discussions focused on the task at hand.
+
+this ensures a healty and strong community!
